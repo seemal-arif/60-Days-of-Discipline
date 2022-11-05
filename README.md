@@ -1,2 +1,6 @@
 # 60-Days-of-Discipline
-Maintaining discipline for 60 days
+## " Winners Need Discipline not Motivation "
+
+
+
+    Discipline Day 1
